@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports
 - 🍣 My favourite food is pasta
 - 😄 Pronouns: Any
-- ⚡ Fun fact: I love 
+- ⚡ Fun fact: I love watching movie
 
 <!---
 
